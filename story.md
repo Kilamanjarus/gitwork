@@ -1,0 +1,1 @@
+This is a short story about a cat named mocha. She is currently attacking my ankles and moewing to the heavens begging for her daily lunch. She just had a hairball 10 minutes ago. She is persistent. She is now back meowing to the heavens.
